@@ -1,0 +1,2 @@
+# SURIKATCOIN
+memecoin onepage
